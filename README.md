@@ -1,2 +1,2 @@
-Yisong Tang
+Yisong Tang yisong@uchicago.edu
 
